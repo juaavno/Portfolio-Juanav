@@ -1,2 +1,0 @@
-# Portfolio-Juanav
-My life
